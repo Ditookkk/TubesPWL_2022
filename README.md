@@ -6,5 +6,5 @@ Nama Anggota :
 - A Aldi Setiawan
 - Muhammad Aldito Rizki
 - Daffa Praramandana
-- Auliya Thomi Fikriansyah
+- Aulia Thomi Fikriansyah
 
